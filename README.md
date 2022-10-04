@@ -1,0 +1,1 @@
+# integrata-design-pattern-oktober-2022
